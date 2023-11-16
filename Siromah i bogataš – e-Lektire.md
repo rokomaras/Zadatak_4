@@ -1,5 +1,4 @@
-> U prastara vremena, kada je još Bog po zemlji hodao, desi se jednom te ga sustala od umora zatekla noć, prije negoli je znao, gdje će na konak. Kraj puta, kojim prolažaše, stajahu dvije kuće…
-
+# Siromah i bogataš
 ---
 U prastara vremena, kada je još Bog po zemlji hodao, desi se jednom te ga sustala od umora zatekla noć, prije negoli je znao, gdje će na konak.
 
