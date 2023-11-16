@@ -1,6 +1,4 @@
 # Crvenkapica
-> Bila jednom mala draga djevojčica, koju bi svatko zavolio čim bi je ugledao, a njezina je baka voljela tako da nije znala kako da djetetu ugodi. Jednom joj poklonila kapicu od crvena baršuna…
-
 ---
 
 Bila jednom mala draga djevojčica, koju bi svatko zavolio čim bi je ugledao, a njezina je baka voljela tako da nije znala kako da djetetu ugodi. Jednom joj poklonila kapicu od crvena baršuna, što je djevojčici tako dobro pristajala da drugo i nije htjela nositi; po toj je kapici prozvali Crvenkapicom.
