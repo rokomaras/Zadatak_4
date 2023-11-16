@@ -1,5 +1,4 @@
-> U nekoj mlinici živio stari mlinar koji nemaše ni žene ni djece. U njega služila tri momka. Pošto su nekoliko godina u njega bili, jednoga im dana on reče: – Ostario sam: vrijeme je da se povučem u…
-
+# Siromašni mlinarski momčić i maca
 ---
 U nekoj mlinici živio stari mlinar koji nemaše ni žene ni djece. U njega služila tri momka. Pošto su nekoliko godina u njega bili, jednoga im dana on reče:
 
