@@ -1,5 +1,4 @@
-> Bilo usred zime; poput maska padale snježne pahuljice; kraj prozora s okvirom od crne ebanovine sjedila kraljica i šila. Pogledala kako sniježi, pa se u prst ubola, i tri kapi krvi pale u snijeg.
-
+# Snjeguljica
 ---
 Bilo usred zime; poput maska padale snježne pahuljice; kraj prozora s okvirom od crne ebanovine sjedila kraljica i šila. Pogledala kako sniježi, pa se u prst ubola, i tri kapi krvi pale u snijeg. Kako se rumenilo u bijelom snijegu lijepo isticalo, kraljica pomisli: »Da mi je dijete, bijelo kao snijeg, rumeno kao krv, a kose crne kao okviri od prozora!«
 
