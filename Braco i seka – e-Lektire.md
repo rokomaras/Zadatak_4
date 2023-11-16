@@ -1,5 +1,4 @@
-> Braco uzeo svoju seku za ruku, pa joj rekao: – Otkada je umrla majka, nema nam više sreće; maćeha nas bije, i kad dođemo k njoj, odgurne nas nogom. Hrana nam ono malo tvrdih korica kruha…
-
+# Braco i seka
 ---
 Braco uzeo svoju seku za ruku, pa joj rekao:
 
